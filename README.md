@@ -1,1 +1,1 @@
-<a href="https://LeKaHeRe.github.io/Qka-Dole-Ti/" target="blank">Kliko këtu për surprizën 🎉</a>
+<a href="https://LeKaHeRe.github.io/podepo/" target="blank">Open</a>
